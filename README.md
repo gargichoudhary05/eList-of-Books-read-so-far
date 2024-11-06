@@ -14,5 +14,8 @@ Till then Kudos to me for coming this far atleast, small achievement. Yayyyyyyyy
 # 5) Think And Grow Rich
 # 6) Think And Win like Dhoni
 # 7) The Indomitable Spirit
+# 8) The Diary of a CEO
+# 9) Zero to One
+
 
 
